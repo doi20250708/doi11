@@ -10,4 +10,4 @@
 
 欧美精品一本久久男人专区为追求品质与刺激并存的用户而设，内容涵盖自慰专题、生活片段、欧美剧情与成人精品资源。平台每日实时更新，支持高清播放与移动端观看，致力于打造高效、纯净且便捷的观影体验环境。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/doi20250708/doi11 ）</span>
